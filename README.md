@@ -1,4 +1,3 @@
-<img align="left" src="https://github-readme-stats.vercel.app/api?username=Hashibutogarasu&count_private=true&show_icons=true"/>
-<img align="left" src="https://github-readme-stats.vercel.app/api/top-langs/?username=Hashibutogarasu"/>
+> ( ᐛ)<ウドあふぃこヴぁ、fdぉおfせあったぁぁぁぁぁぁぁぁぁぁぁぁ！！！！！！！！！！
 
-[![trophy](https://github-profile-trophy.vercel.app/?username=Hashibutogarasu)](https://github.com/Hashibutogarasu/github-profile-trophy)
+などと容疑者は記述しており何を言ってるか分からない模様。
